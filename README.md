@@ -11,6 +11,6 @@
 
 ------------
 
-- [youtube](https://www.youtube.com/watch?v=SavhHnWla6c&t=16s)
+- [youtube](https://www.youtube.com/watch?v=SavhHnWla6c&t=16s=100x100)
 
 ![foto](https://vignette.wikia.nocookie.net/naruto/images/2/2e/Estilo_de_Selamento_de_Oito_Trigramas.svg/revision/latest/scale-to-width-down/500?cb=20150510003924&path-prefix=pt-br)
